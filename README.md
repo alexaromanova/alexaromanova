@@ -4,7 +4,7 @@
 
 ### Analytics & AI Graduate Student · Business & Finance Background · Berlin 🇩🇪
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)](www.linkedin.com/in/alexaromanova)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/alexaromanova)
 [![Email](https://img.shields.io/badge/Email-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:alexarmnva@gmail.com)
 
 </div>
@@ -69,7 +69,7 @@ Analysed the influence of remote work on employee productivity, work–life bala
 - 📧 [alexarmnva@gmail.com](mailto:alexarmnva@gmail.com)
 - 📞 +49 174 6730479
 - 📍 Berlin, Germany
-- 💼 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)](www.linkedin.com/in/alexaromanova)
+- 💼 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/alexaromanova)
 
 ---
 
